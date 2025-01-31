@@ -13,7 +13,7 @@
 
 - 💬Pregúntame sobre **Python, Django**
 
-- 📫 Cómo contactarme **carolinacsm14@gmai.com**
+- 📫 Cómo contactarme **carolinacsm14@gmail.com**
 
 - ⚡ Dato curioso **Me gusta Escuchar a Carlos Rivera mientra programo**
 
