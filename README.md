@@ -15,7 +15,7 @@
 
 - 📫 Cómo contactarme **carolinacsm14@gmail.com**
 
-- ⚡ Dato curioso **Me gusta Escuchar a Carlos Rivera mientra programo**
+- ⚡ Dato curioso **Me gusta Escuchar a Carlos Rivera mientras programo**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
